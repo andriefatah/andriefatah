@@ -4,7 +4,7 @@
 
 ### Reach me on
 - <a href="https://linkedin.com/in/andrieadzkia/">LinkedIn</a>
-- andrieadzkia19@gmail.com
+- andrieadzkia17@gmail.com
 
 ### Github Statistic
 <p align="left">
